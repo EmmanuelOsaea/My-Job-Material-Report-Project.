@@ -53,7 +53,7 @@ Emmanuel Osemudiamen
 
 **Experience:** 
 
-Research Writer  at Apple, Cupertino, California, United StatesMay 1, 2023 to Jan 1, 2024
+Research Writer  at Apple, Cupertino, California, United States. May 1, 2023 to Jan 1, 2024
 
 * Conducted research and wrote articles on LGBTQIA+ history and issues for publication.
 
