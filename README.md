@@ -89,10 +89,16 @@ Family rejection is a significant factor contributing to LGBTQ+ youth homelessne
 Addressing LGBTQ+ homelessness requires a multifaceted approach, including increasing awareness, funding supportive services tailored to the LGBTQ+ community, and implementing policies that protect LGBTQ+ individuals from discrimination. Organizations such as the Ali Forney Center in New York City have made significant strides in providing comprehensive support to LGBTQ+ homeless youth, including housing, medical care, and educational services. However, broader systemic change is necessary to ensure that all LGBTQ+ youth have the opportunity to lead safe, healthy, and fulfilling life. 
 
 **References:**
- * Janet Osesele 
+ * Ms Janet Osesele 
 
- * Real Estate Consultant
+ * Real Estate Consultant/Skin care Entrepreneur
 
  * Real Estate Agency
+ 
+ * Ms Jennifer Omoye
+ 
+ * Chef/ Boutique Entrepreneur
+
+*Boutique store/ Restaurant
 
 Relationship: Well, we are good friends who shares similar goals and aspirations.
