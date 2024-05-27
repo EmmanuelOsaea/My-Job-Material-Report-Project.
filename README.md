@@ -99,6 +99,6 @@ Addressing LGBTQ+ homelessness requires a multifaceted approach, including incre
  
  * Chef/ Boutique Entrepreneur
 
-*Boutique store/ Restaurant
+ * Boutique store/ Restaurant
 
-Relationship: Well, we are good friends who shares similar goals and aspirations.
+**Relationship:** Well, we are good friends who shares similar goals and aspirations.
